@@ -4,6 +4,7 @@ also iwec people who whitewash banhammer that man is BLACK!!!! also people who t
 
 cuddle + hiding/hugging is ALWAYS OKAY !!!!!! i have heavy touch comfort and love love LOVE when people sit with me i actually explode /j
 you're free to take inspo from my ponies if yew want, but also tell me !! i wanna see !!  don't completely copy my ponies though , i love them alot ^_^
+i use grass/snow coloured ponies spawning at different locations to teleport (fast travel) around the map, if im standing near you with one of them im not stalking, i probably just moved on accident and went to do something else and forgot... erm i have terrible memory also ..,.,..
 
 i have audhd .. i often zone out and don't know what to say so if i don't respond that's probably why erm
 idm if you use tonetags on me, if you want me to use them fur you please tell me to !!
