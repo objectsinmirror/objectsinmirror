@@ -1,5 +1,5 @@
 # info
-  osc, phighting, and dw fandoms iwc... a lOT of yall are wierd erm .... also iwec people who whitewash banhammer that man is BLACK!!!! also also people who get mad at people for making phighting chars black (???)
+  osc, phighting, and dw fandoms IWEC ... a LOT of you all are very weird/gross . also iwec people who whitewash banhammer that man is BLACK!!!! also also people who get mad at people for making phighting chars black (???)
 
   cuddle + hiding/hugging is ALWAYS OKAY !!!!!! i have heavy touch comfort and love love LOVE when people sit with me i actually explode /j you're free to take inspo from my ponies if yew want, but also tell me !! i wanna see !! don't completely copy my ponies though , i love them alot ^_^ i use grass/snow coloured ponies spawning at different __cpLocations to teleport (fast travel) around the map, if im standing near you with one of them im not stalking, i probably just moved on accident and went to do something else and forgot... erm i have terrible memory also ..,.,..
 
