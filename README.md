@@ -1,7 +1,7 @@
 PFP art creds are PPINUT_BUTTER on twitter/x !! 
 
-	ok guys I lied the remake was NOT coming soon but eruhm heres like an abridged about me:
-	I'm a minor, i'm in school currently and have kinda a lot of homework so I'm often offtab, w2i is preferred, feel free to send a frq if we're sitting together I don't mind !! i love makin' friends ^_^ 
+	remake...reamek soon guy.s....
+	I'm a minor, i'm in school currently and have kinda a lot of homework so I'm often offtab, w2i is preferred, feel free to send a frq if we're sitting together I don't mind !! i love makin' friends ^_^ ;; i also have a job so will  likely be online less often because im busy working in the MINES!!!!
 	I often use 4 to replace for, 2 to replace to/too, and I also use them in words (2gether, 4got), if you don't want me to do this around me PLEASE LET ME KNOW !!! i will have no idea otherwise...
 	I type fast so I often have quite horrendous spelling but i CAN spell (if it bothers you tell me!!!)
  	I like talkin' to people, but i am still kindof a . really bad conversationalist . looks around.... expect lots of like... ouuus or WAOWZA!!!!s or general kinda like... unresponse-worthy responses? rest assured that i AM reading what you're saying and i DO care about it i just am like... completely unsure of how to formulate responses that are logical
