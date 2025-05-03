@@ -1,6 +1,6 @@
 **PFP art creds are PPINUT_BUTTER on twitter/x !!**
 
-*c+h -> cuddle and hide ; w2i -> whisper to interact ; iwc -> interact with caution ; iwec -> interact with extra/extreme caution ; iwcare -> interact with care ; dni -> do not interact ; dniuf -> do not interact unless friends ; -> dniuc -> do not interact unless close ; dniuid -> do not interact unless i do ; fdni -> fandom dni ; mv -> my version ; greenname -> friend ; blue name -> party member*
+*c+h -> cuddle and hide ; w2i -> whisper to interact ; iwc -> interact with caution ; iwec -> interact with extra/extreme caution ; iwcare -> interact with care ; dni -> do not interact ; dniuf -> do not interact unless friends ; -> dniuc -> do not interact unless close ; dniuid -> do not interact unless i do ; fdni -> fandom dni ; mv -> my version ; greenname -> friend ; blue name -> party member ; wip -> work in progress*
 
 	minor, currently have school + job - i have a lot of work to do so i'll be busy/offtab quite often , w2i is preferred! Also feel free to double text if I don't respond within ~10 minutes (in game) . updating guys i am so busy if i'm not online for like a day or something THATS WHY! screams and CRIES. oh yeah also I have limited internet so if i ah er randomly disconnect and don't return for like a day thats why... sighs deeply..
  	I don't have a specific DNI or int list, I'll be down to interact with whoever and will probably not continue conversation if I find you annoying
