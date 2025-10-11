@@ -1,4 +1,4 @@
-<p align="center">❕ profile picture is by PPINUT_BUTTER on twitter/x ❕ </p>
+<p align="center">❕ profile picture is by PPINUT_BUTTER on twitter/x ❕ 
 
     c+h+k -> cuddle and hide/hug and kiss friendly; w2i -> whisper to interact; w2j -> whisper to join; iwc -> interact with caution; iwec -> interact with extra/extreme caution; iwcare -> interact with care; dni -> do not interact; dniuf -> do not interact unless friends; -> dniuc -> do not interact unless close; dniuid -> do not interact unless i do; fdni -> fandom dni; mv -> my version; greenname -> friend/on friends list; blue name -> party member; wip -> work in progress; sp or strwapg -> strawpage; ata -> atabook; b/w -> boop/whisper; pfp -> profile picture; enc -> encouraged
 
@@ -24,6 +24,9 @@
   <br> other interests of mine consist of guardians of ga'hoole (THE BOOKS SPECIFICALLY) (PLEASE talk to me if you have read these books, they are SO SLEPT ON but they were GENUINELY SO AMAZING), all rick rioridan books except the kane chronicles..., fablehaven + dragonwatch, five kingdoms, the serafina series, the last dragon chronicles, wings of fire, the first 4 warriors series but i know a lot from the other arcs, keeper of the lost cities, all three of charlotte mcconaghy books (exceptionally good, but definitely mind the trigger warnings), inanimate insanity (s1-s3), battle for dream island + xfohv, hermitcraft + the life series (mainly etho and tango povs), hfjone, the stanley parable, lego monkie king, dungeon meshi, the nightly manor, geometry dash, PHIGHTING!, dandy's world, regretevator, mouthwashing, lifesteal smp, birds, some nuclear science/particle physics related stuff (shoutout bobbybroccoli on youtube my GOAT), specifically the super mario odyssey hide and seek crew (except moarf because he used ai for a LOT of his thumbnails which is GROSS bro), digital and traditional art, MUSICC (shoutout joywave and kiltro and stomachbook and maneskin and boggio and yoyle cake and toby fox and c418 and czeslaw spiewa and grubson and molcaht doma and thefatrat and the crane wives and gipsy kings and the living tombstone and jack stauber and cg5 and uncle outrage and 10209092139 BILLION others), and i think that is it. please note that i am not an activae participant in any fandom, and i mostly like them for their story and characters... i swear i am not one of the very annoying object show fans or roblox game fans...
   
 
-  <br> anyway, i just wanted to write some stuff. if you actually read all of this, that's pawesome, thank you very much! if you didn't or just skimmed, that is very understandable and fine as well! i hope you have a lovely day/night, friend ! :-)
+  <br> anyway, i just wanted to write some stuff. if you actually read all of this, that's pawesome, thank you very much! if you didn't or just skimmed, that is very understandable and fine as well! i hope you have a lovely day/night, friend ! :-) <br>
+
+  ![](https://komarev.com/ghpvc/?username=objectsinmirror&color=yellowgreen&style=plastic&label=wild+animals+currently+infesting+captainsparklez'+house) 
+
 
 ###### <p align=center> this will be probably be updated in the future / last edited on october 10th, 2025
