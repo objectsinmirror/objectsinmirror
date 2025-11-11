@@ -12,7 +12,7 @@
 
 ###### <p align=center>interacting w/ me stuff 
    **you can 100% take inspiration** from my ponies, but do **not** completely copy them or post them on pinterest. i would love it if you showed me your result or asked me what you want to do, though! i always love to see what you guys do. :D!!!
-  <br> i do not have a dni list, i will simply not interact with you + hide/block you if i do not like you. 
+  <br> my dni list consists of hateful/bigoted people (racist, ableist, sexist, homophobic, transphobic, etc) and freaks/darkshippers/proshippers and people who say/do nsfw/suggestive things on the safe, otherwise i will simply not interact with you + hide/block you if i do not like you
   <br> if you are interacting with me, i request that you do not say the r slur or t slur, any sort of fatshaming jokes (even if you're referring to yourself), sexual assault jokes, or self harm jokes. in the same vein, if i do **ANYTHING** that makes you uncomfortable in _any_ way, **PLEASE TELL ME!** I know how it feels and i do not wish to cause discomfort or harm to others! you can also tell me on my strawpage if you are too nervous to confront me in person, i don't mind how you do it at all! also, i call everyone comrade. like EVERYONE. it's like my version of bro/vro, if you don't like being called comrade please tell me LMAO...
   <br> i sometimes/often struggle to understand things, if my reply to something you said is kinda nonsensical it is likely i misinterpreted what you were saying, i also might not realise this so i would appreciate it if you told me that my answer is weird or something, i will not be offended! similarly, i might ask for you to simplify what you are saying because i do not understand it, i know that this behaviour may become annoying but i assure you that i am trying my best, and if you are becoming irritated then it probably means we should take some time apart/not be friends, or we can have a conversation about what to do about it if you wish to continue talking to me, i do not mind!
 
@@ -37,4 +37,4 @@ currently i am rereading keeper of the lost cities! i forgot how fun those books
   ![](https://komarev.com/ghpvc/?username=objectsinmirror&color=yellowgreen&style=plastic&label=ants+in+my+colony) 
 
 
-###### <p align=center> this will be probably be updated in the future / last edited on november 7, 2025 
+###### <p align=center> this will be probably be updated in the future / last edited on november 11, 2025 
