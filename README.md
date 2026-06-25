@@ -7,11 +7,12 @@
 <div align="center"
 
   if you see me on pony.town, feel free to cuddle/hide with me !!! i really love getting / giving cuds so dont be afraid to ! You can always whisper to ask me if you want as well !
-  w2i is heavily preferred ! i will VERY likely miss your message otherwise... although sometimes i still miss whispers sent to me so if i do not respond, it is nothing against you! i probably closed the tab on accident or something like that qwq ... i'm really really bad at having and keeping friends so i'm sorry to everyone i was friends with before who i haven't talked to in a while..... it's nothing personal im just a chopped ahh chungus (yungwill voice)
+  
+  w2i is heavily preferred ! i will VERY likely miss your message otherwise... although sometimes i still miss whispers sent to me so if i do not respond, it is nothing against you! i probably closed the tab on accident or something like that qwq ... i'm really really bad at having and keeping friends so i'm sorry to everyone i was friends with before who i haven't talked to in a while ...
 
  i hope you (yes YOU, YOU reading this RIGHT NOW!) have some yummy food and a good restful nights sleep! remember to drink water and untense your jaw okie? okie !!  <br>
 
   ![](https://komarev.com/ghpvc/?username=objectsinmirror&color=yellowgreen&style=plastic&label=ants+in+my+colony) 
 
 
-###### <p align=center> this will likely be updated in the future / last edited on jun 24, 2026
+###### <p align=center> this will likely be updated in the future / last edited on jun 25, 2026
